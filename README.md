@@ -1,2 +1,0 @@
-# Gyanu-Iramuk
-Learning
